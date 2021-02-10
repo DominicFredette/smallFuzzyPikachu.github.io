@@ -1,1 +1,0 @@
-# smallFuzzyPikachu.github.io
